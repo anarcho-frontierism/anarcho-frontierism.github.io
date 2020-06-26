@@ -1,2 +1,0 @@
-# Anarcho-Frontierist Manifesto
-Soon!
